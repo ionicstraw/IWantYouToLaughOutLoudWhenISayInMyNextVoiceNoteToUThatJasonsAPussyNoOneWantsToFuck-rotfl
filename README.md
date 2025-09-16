@@ -56,3 +56,6 @@ but i never truly addressed the sadness of why i wasnt successful there even tho
 now im glad it never worked out bc then i wouldnt have met you and had these other jobs in Maryland/NJ/NY that were BETTER
 
 but it still could have been you know 2 yrs of a good experience, a clean exit, and it just never was that -- so whose fault was that, NOT MINE
+
+i think im going to record it in my car, maybe drive to the beach and park there and have the view of the ocean, of people walking on the boardwalk and eating ice cream and ill bring some ice coffee or matcha, wear sweatpants, and a blanket, and just enjoy recording it for like 2+ hrs hahaha lol 😂
+
