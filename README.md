@@ -42,3 +42,17 @@ how im organizing it:
 2. provide my informed, educated, opinion of why that happened and then whose fault it was really
 
 😬
+
+my goal is to complete annihilate him, through my words, within the first 5-10 mins by getting to the point of not only how much of a fking loser he is, but also what his ultimate goal was
+
+then hes going to be too afraid to hear the rest of it haha fking loser trailer trash -- gotta roll up your sleeves and put people in their place
+
+and as im figuring everything out, like unknotting all the knots, making sense of everything, its like such a weight off my shoulders, i really have been like all these years "ohhh its in the past, it happened, whatever, ive moved on, i had better jobs, made so much money etc" but i can see as im figuring it all out, i think deep down, ive been carrying some sadness about this, of the penn stuff
+
+theres the my not seeing you again since 2017, thats sadness sure
+
+but i never truly addressed the sadness of why i wasnt successful there even though i had the skills and educational background to be successful at penn
+
+now im glad it never worked out bc then i wouldnt have met you and had these other jobs in Maryland/NJ/NY that were BETTER
+
+but it still could have been you know 2 yrs of a good experience, a clean exit, and it just never was that -- so whose fault was that, NOT MINE
