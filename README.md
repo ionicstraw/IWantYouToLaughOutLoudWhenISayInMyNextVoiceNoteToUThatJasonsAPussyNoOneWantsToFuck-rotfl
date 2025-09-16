@@ -15,3 +15,8 @@ who would write something like this, its LESS than a blog article, fking stupid 
 we should get a domain, like "DoesJasonEverKnowWhatHesTalkingAbout.com" and put our understanding and experience out there as a response to anything and everything hes ever produced, everything from PennAI that has bugs to this fking bullshit, all of his papers, his entire career -- i think we can have a lot of fun with this throughout our career and our lives
 
 i think its so funny that the coauthor on that paper is from columbia, and i saw a picture with jason and andrea califano on twitter in like 2018 (bc i interviewed with him in 2017 and theres a possibility he reached out to jason and the same thing happened there as well bc they stopped responding to my emails), but i wonder how obsessed jason is with columbia bc he burned his bridges with you guys LOL fking LOSER
+
+
+yoo it is so therapeutic to do this voicenote, these people are so utterly disgusting like as im writing along the day what happend and on their bullshit research, i dunno its just so disgusting the feelings i have about them, how much of waste of time they have been, im so glad i have u to listen to me so i can share it and make u laugh too, im just really streamlining everything i want to say, like i want it to be really good, so when i feel ready, maybe this week or next week, ill record it -- i just cant believe this is real that ppl be this pathetic to stalk a resigned employee, my talking about makes it real and that is the power of words and talking
+
+fking trailer park TRASH
