@@ -34,3 +34,11 @@ i wanna send you voicenotes with like random study things or like me talking abo
 these next few months -> are going to be me moving forward from the sadness of this past thats just been glued to me, like ive moved on but its being glued to me
 
 and i have to go to the fking gym a few times a week bc that helps me too
+
+the central theme of this upcoming voice note is: why can’t jason moore ever get anything right, why is he always so consistently wrong and yet he can never just shut the fk up
+
+how im organizing it:
+1. provide empirical evidence of what happened
+2. provide my informed, educated, opinion of why that happened and then whose fault it was really
+
+😬
