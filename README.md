@@ -61,3 +61,4 @@ but it still could have been you know 2 yrs of a good experience, a clean exit, 
 
 i think im going to record it in my car, maybe drive to the beach and park there and have the view of the ocean, of people walking on the boardwalk and eating ice cream and ill bring some ice coffee or matcha, wear sweatpants, and a blanket, and just enjoy recording it for like 2+ hrs hahaha lol 😂
 
+im going to mention how yosef's tool, magik, was dropped by MSK to be put in their production level clinical pipeline, it was making too many errors hahaha its interesting how life works, i would always hear its name at Richards at Penn and it was just shit-tier in the end.
