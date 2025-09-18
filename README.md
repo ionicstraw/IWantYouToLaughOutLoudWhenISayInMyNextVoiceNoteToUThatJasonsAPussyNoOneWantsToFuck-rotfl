@@ -66,3 +66,5 @@ i think im going to record it in my car, maybe drive to the beach and park there
 im going to mention how yosef's tool, magik, was dropped by MSK to be put in their production level clinical pipeline, it was making too many errors hahaha its interesting how life works, i would always hear its name at Richards at Penn and it was just shit-tier in the end.
 
 honestly, ill record it by the end of the month, theres just a lot to discuss, i have to get everything right and understand it for what it is
+
+jasons really mentally ill and is in mental decline, dont look at his social media, im just writing down some notes on what ill discuss in this voice note to you, looking at jasons social media literally feels like entering an abandoned insane asylum, its just so WEIRD
