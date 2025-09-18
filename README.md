@@ -67,4 +67,4 @@ im going to mention how yosef's tool, magik, was dropped by MSK to be put in the
 
 honestly, ill record it by the end of the month, theres just a lot to discuss, i have to get everything right and understand it for what it is
 
-jasons really mentally ill and is in mental decline, dont look at his social media, im just writing down some notes on what ill discuss in this voice note to you, looking at jasons social media literally feels like entering an abandoned insane asylum, its just so WEIRD
+jasons really mentally ill and is in mental decline, dont look at his social media, im just writing down some notes on what ill discuss in this voice note to you, looking at jasons social media literally feels like entering an abandoned insane asylum, its just so WEIRD -- hes knuckle-walking across campus 🦍😂
