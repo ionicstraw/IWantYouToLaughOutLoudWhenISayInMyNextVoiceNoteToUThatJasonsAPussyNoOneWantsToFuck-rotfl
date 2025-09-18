@@ -1,5 +1,7 @@
 # IWantYouToLaughOutLoudWhenISayInMyNextVoiceNoteToUThatJasonsAPussyNoOneWantsToFuck-rotfl
 
+# [don't let ugly people affect you 😂](https://www.tiktok.com/@billionairenami/video/7539573072765013279)
+
 ![img](how-i-feel-writing-my-notes-for-this-future-voicenote.png)
 
 its therapeutic to come up with what i want to say, ill record it when i feel ready, it could be this week or next week, i really want to streamline it so it could be used legally too
