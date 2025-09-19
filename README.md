@@ -73,4 +73,5 @@ im going to do this before the end of october, there's a lot to discuss and the 
 
 this will be total annihilation for jason and paul, it would freak out the penn ogc immediately so i wanna do it correctly
 
+i have 25+ pages of writing about what happened to me at penn (so it would be a 2-3 hr voice note) and about jasons shit career and paul, and everyone else including the shit-tier postdocs who watched lectures from stanford's youtube page on AI (so no training in AI, esp not from stanford lol), but i need to organize everything so it doesnt effect my future career i.e. where you are, it is very, very difficult to explain this so it gets the right target without making ME look bad bc it was NOT MY FAULT none of this was my fault. so thats the trick, its very, very, very difficult.
 
